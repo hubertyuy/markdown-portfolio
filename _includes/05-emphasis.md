@@ -1,0 +1,1 @@
+In terms of your delivery, think about _chunking infomation for three_: for example, **Our product is safe, reliable, and effective** Repeating important information during your presentation also makes a greater impact and helps the audience remember important infomation.
